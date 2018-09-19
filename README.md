@@ -1,1 +1,2 @@
-https://abouadamwawawa.github.io/BetterMotherFuckingWebsite/
+https://abouadamwawawa.github.io/bettermotherfuckinwebsite/
+
